@@ -1,7 +1,15 @@
 <p align="center">
- <img width="200" src= (https://github.com/user-attachments/assets/c34ec9f9-8e1b-4827-8aa6-80b1b91bb6ad)
+ <img width="300" src= ![image](https://github.com/user-attachments/assets/94e7f98f-e036-4d57-8ac7-876d0bf6e6e6)
 
  
-   ![tumblr_326e4e4c708b13b91909b5db25515f45_452d156a_250](https://github.com/user-attachments/assets/349ad13d-3c78-4cfe-b37b-bf4af2f5d190)
+  ![image](https://github.com/user-attachments/assets/94e7f98f-e036-4d57-8ac7-876d0bf6e6e6)
 
+<p align="center">
+┊ ✦  FRANCIS/DEIMOS/STARSCREAM ✦ ┊
 
+┊ ✦  PRNS: ANY , PREF: HE/HIM ✦ ┊
+
+<p align="center">
+┊ ✦ INTERESTS !✦ ┊
+
+- TRANSFORMERS , MADCOM , PHIGHTING! , MOUTHWASHING , TEAM FORTRESS 2 , POKEPASTAS , POKEMON , REGRETEVATOR , MORTAL KOMBAT 
