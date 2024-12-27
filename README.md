@@ -37,7 +37,7 @@
 -
 
  <p align="center">
- .; TAKEN BY A SILLY - @trueeyecult ;. 
+ .; TAKEN BY A SILLY ;. 
 
 -
 
