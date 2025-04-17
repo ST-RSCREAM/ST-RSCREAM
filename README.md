@@ -45,7 +45,7 @@
  .; P.S -- I SUCK AT KEEPING CONVOS GOING , SO I APOLOGIZE IN ADVANCE , MY MOODS SWING VERY FREQUENTLY SO PLS BE AWARE ! I WILL HATE ON WHAT I DONT LIKE !! , I CAN BE ANNOYING IF I AM JUST LMK !! FEEL FREE TO INT IF YOURE NOT IN MY DNI , PLS DONT IF MY NAME SAYS OTHERWISE EX:DNIU__ , DNI !
 
  <p align="center">
- <img width="300" src= ![image](https://github.com/user-attachments/assets/94e7f98f-e036-4d57-8ac7-876d0bf6e6e6)
+ <img width="1000" src= ![Image](https://github.com/user-attachments/assets/4f6f32f2-2675-40ba-aa23-5378f05225f5)
 
  
   ![image](https://github.com/user-attachments/assets/94e7f98f-e036-4d57-8ac7-876d0bf6e6e6)
