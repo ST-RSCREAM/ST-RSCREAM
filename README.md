@@ -1,9 +1,9 @@
 <p align="center">
- <img width="300" src= ![image](https://github.com/user-attachments/assets/94e7f98f-e036-4d57-8ac7-876d0bf6e6e6)
+ <img width="300" src= ![Image](https://github.com/user-attachments/assets/4f6f32f2-2675-40ba-aa23-5378f05225f5)
+
+ ![Image](https://github.com/user-attachments/assets/4f6f32f2-2675-40ba-aa23-5378f05225f5)
 
  
-  ![image](https://github.com/user-attachments/assets/94e7f98f-e036-4d57-8ac7-876d0bf6e6e6)
-
 <p align="center">
 ┊ ꣑୧  FRANCIS/MAX/DEIMOS/STARSCREAM ꣑୧ ┊
 
