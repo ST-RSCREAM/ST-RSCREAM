@@ -5,32 +5,32 @@
   ![image](https://github.com/user-attachments/assets/94e7f98f-e036-4d57-8ac7-876d0bf6e6e6)
 
 <p align="center">
-┊ ✦  FRANCIS/MAX/DEIMOS/STARSCREAM ✦ ┊
+┊ ꣑୧  FRANCIS/MAX/DEIMOS/STARSCREAM ꣑୧ ┊
 
  -
 
 
 <p align="center">
-┊ ✦  PRNS: ANY , PREF: HE/HIM ✦ ┊
+┊ ꣑୧  PRNS: ANY , PREF: HE/HIM ꣑୧ ┊
 
  -
 
 <p align="center">
-┊ ✦ INTERESTS !✦ ┊
+┊ ꣑୧ INTERESTS ! ꣑୧ ┊
 <p align="center">
 - TRANSFORMERS , MADCOM , PHIGHTING! , MOUTHWASHING , TEAM FORTRESS 2 , POKEPASTAS , POKEMON , REGRETEVATOR , SUPERNATURAL , MORTAL KOMBAT , UNTIL DAWN , THE OUTSIDERS , INTERSTELLAR , WHIPLASH , ARCANE , TOPGUN , COOKIE RUN KINGDOM , 3FS -
 
 -
 
 <p align="center">
-┊ ✦ INT ! ✦ ┊
+┊ ꣑୧ INT ! ꣑୧ ┊
 <p align="center">
 - IF YOURE FANS OF ANYTHING STATED ABOVE , IDM IF YOU INT JUST DONT IF YOURE APART OF MY DNI! -
 
 -
 
 <p align="center">
-┊ ✦ ! DNI ! ✦ ┊  
+┊ ꣑୧ ! DNI ! ꣑୧ ┊  
 <p align="center">
  - BASIC DNI , JIMMYS (MW) , IF YOU DONT RESPECT BOUNDARIES , JOKES ABOUT SA , PENIS SKINS , WINCEST (SAM.WINCHESTERxDEAN.WINCHESTER) , SAMXLUCIFER , SILCOXJINX ,  MORE COMING SOON! -
 
