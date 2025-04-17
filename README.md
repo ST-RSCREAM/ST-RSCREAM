@@ -5,7 +5,7 @@
   ![image](https://github.com/user-attachments/assets/94e7f98f-e036-4d57-8ac7-876d0bf6e6e6)
 
 <p align="center">
-┊ ✦  FRANCIS/DEIMOS/STARSCREAM ✦ ┊
+┊ ✦  FRANCIS/MAX/DEIMOS/STARSCREAM ✦ ┊
 
  -
 
